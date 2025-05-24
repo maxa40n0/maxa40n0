@@ -5,6 +5,8 @@ gonna update the file every time i learn something :)
 
 To reach me - just text .mxsul in discord 
 
+If you want to see the art, just switch to "code" mode.
+
 ▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆▆
 ▆   ▆▆▆▆▆▆▆             ▆▆   ▆▆▆▆▆▆
 ▆   ▆▆▆▆▆▆   ▆▆▆▆▆▆   ▆   ▆▆▆▆▆▆
